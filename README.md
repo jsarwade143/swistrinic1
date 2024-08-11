@@ -1,1 +1,0 @@
-# swistrinic1
